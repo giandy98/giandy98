@@ -1,0 +1,7 @@
+-👋 Hi, I’m Giandomenico Mongelli!
+-🎓 I'm a graduate in Economics and Business Organisation with a specialisation in Digital Economics and Marketing.
+-🌱 I’m currently attending a professional online master's programme in data analytics.
+-🔍 I've a strong passion for data analysis and the development of strategic solutions to support business decisions.
+-👀 I'm looking for work experience in business analytics.
+-📫 How to reach me: giandy.mongelli@gmail.com
+-👨🏻‍💻 Linkedin profile: www.linkedin.com/in/giandomenico-mongelli
